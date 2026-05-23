@@ -2,7 +2,7 @@
 
 Last Updated 22/05/2026
 
-These Terms of Service (the "Terms") govern your use of cupid.wtf (the "Service"). By accessing or using the Service, you agree to these Terms; if you do not, stop using the Service immediately.
+These Terms of Service (the "Terms") govern your use of anthrax.gift (the "Service"). By accessing or using the Service, you agree to these Terms; if you do not, stop using the Service immediately.
 
 ## Changes to These Terms
 We may revise these Terms at any time. Updated Terms will be published on our website and on Telegram. Your continued use after posting constitutes acceptance of the revised Terms; if you disagree, you must stop using the Service.
